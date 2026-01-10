@@ -19,4 +19,18 @@ $\small\color{#6b73db}{\textsf{my name is will, or the doctor, mainly varying wi
 
 $\Large\color{#f7cd59}{\textsf{"I...- am the very model of a Gallifreyan buccaneer!-"}}$
 
+$\small\color{#6b73db}{\textsf{If you couldn't tell, I am a fictkin! I represent myself in the characters that I kin, and in some form or way believe I am some.}}$
 
+$\small\color{#6b73db}{\textsf{due to that being the case, I encourage the lack of doubles interacting with myself, unless stated wise.}}$
+
+$\small\color{#6b73db}{\textsf{The only exception I have for that, is being friends.}}$
+
+$\small\color{#6b73db}{\textsf{If any friends of my own friends are doubles, there will be a chance I will he hostile towards you.}}$
+
+![11679416_5c33b](https://github.com/user-attachments/assets/5381c208-29ff-49d0-8a49-b24dd14bb1e4)
+
+$\Large\color{#382275}{\textsf{"-Never be cowardly, never be cruel! -AND NEVER EVER EAT PEARS! Remember hate is always foolish,"}}$
+
+$\Large\color{#382275}{\textsf{"-love is always wise, always try to be nice, but never fail to be kind..."}}$
+
+$\small\color{#6b73db}{\textsf{c+h is always welcome, specially when I am alone unless stated otherwise.}}$
