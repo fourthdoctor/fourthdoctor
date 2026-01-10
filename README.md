@@ -2,7 +2,6 @@
 <p align="center">
   
 <h1 align="center">
-<img width="140" src="https://komarev.com/ghpvc/?username=fourthdoctor&color=f5ea53" alt="NEW BESTFRIENDS!!!"> 
 
 
  ![tumblr_9544b65b6ba74d9a7f236f2632cf1da3_098c7f78_400](https://github.com/user-attachments/assets/78eade21-369f-4a02-a7e1-4e47769ed336)
