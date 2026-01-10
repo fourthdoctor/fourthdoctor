@@ -1,16 +1,13 @@
-## Hi there 👋
+# wip incurring
+<p align="center">
 
-<!--
-**fourthdoctor/fourthdoctor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="140" src="https://komarev.com/ghpvc/?username=fourthdoctor&color=f5ea53" alt="NEW BESTFRIENDS!!!"> 
 
-Here are some ideas to get you started:
+$\large\color{#470b20}{\textsf{Would you like a jellybaby?}}$
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ![tumblr_27e27e9e3e9796acdad3ef0d6d2456e3_a0e31823_250](https://github.com/user-attachments/assets/29bb024f-9c43-41a4-acc5-9ae0daf97d16)
+
+HELLLOOOO WORLDDDD!!!
+
+
+<p align="center">
