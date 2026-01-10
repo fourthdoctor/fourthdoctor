@@ -12,8 +12,8 @@
 <h1 align="center">
 
 
-![tumblr_27e27e9e3e9796acdad3ef0d6d2456e3_a0e31823_250](https://github.com/user-attachments/assets/f07013a6-6143-4b50-afbc-27d471699ea0)
 
+![tumblr_9544b65b6ba74d9a7f236f2632cf1da3_098c7f78_400](https://github.com/user-attachments/assets/eb0a89c2-7c0e-4a04-a252-e9b540612955)
 
 
 $\Large\color{#632230}{\textsf{"-Would you like a jellybaby?"}}$
@@ -25,7 +25,10 @@ $\small\color{#6b73db}{\textsf{my name is will, or the doctor, mainly varying wi
 $\small\color{#6b73db}{\textsf{My pronouns consistantly stay masculine, any feminine terms will be called out, and I will state that I am uncomfortable.}}$
 
 
-  ![tumblr_27e27e9e3e9796acdad3ef0d6d2456e3_a0e31823_250](https://github.com/user-attachments/assets/29bb024f-9c43-41a4-acc5-9ae0daf97d16)
+
+![tumblr_27e27e9e3e9796acdad3ef0d6d2456e3_a0e31823_250](https://github.com/user-attachments/assets/e9797868-1915-4909-90d1-0959a61208eb)
+
+
 
 
 $\Large\color{#f7cd59}{\textsf{"I...- am the very model of a Gallifreyan buccaneer!-"}}$
