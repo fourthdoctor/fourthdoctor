@@ -1,4 +1,4 @@
-# wip incurring
+# about me
 <p align="center">
   
 <h1 align="center">
