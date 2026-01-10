@@ -20,7 +20,7 @@ $\small\color{#6b73db}{\textsf{My pronouns consistantly stay masculine, any femi
 
 $\Large\color{#f7cd59}{\textsf{"I...- am the very model of a Gallifreyan buccaneer!-"}}$
 
-$\small\color{#6b73db}{\textsf{If you couldn't tell, I am a fictkin! I represent myself in the characters that I kin, and in some form or way believe I am some.}}$
+$\small\color{#6b73db}{\textsf{If you couldn't tell, I am a fictkin! I represent myself in the characters that I kin, and in some form or way believe I am some, or just heavily relate to others.}}$
 
 $\small\color{#6b73db}{\textsf{due to that being the case, I encourage the lack of doubles interacting with myself, unless stated wise.}}$
 
