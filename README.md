@@ -12,7 +12,9 @@
 <h1 align="center">
 
 
- ![tumblr_9544b65b6ba74d9a7f236f2632cf1da3_098c7f78_400](https://github.com/user-attachments/assets/78eade21-369f-4a02-a7e1-4e47769ed336)
+![tumblr_27e27e9e3e9796acdad3ef0d6d2456e3_a0e31823_250](https://github.com/user-attachments/assets/f07013a6-6143-4b50-afbc-27d471699ea0)
+
+
 
 $\Large\color{#632230}{\textsf{"-Would you like a jellybaby?"}}$
 
