@@ -53,6 +53,8 @@ $\small\color{#6b73db}{\textsf{I love listening, I'm not much of a talker when i
 
 $\small\color{#6b73db}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I start to distance myself off, but I also do have severe anger issues!}}$
 
+$\small\color{#6b73db}{\textsf{I also have slight adandonment issues, and I am absolutely petrified to scare people off, or have them leave me, so I tend to be very clingy, specially if I get close to someone.}}$
+
 $\small\color{#6b73db}{\textsf{I AM undiagnosed, I do NOT care if you believe if I have autism, or adhd, I will find out on my own and do not wish for your input on that topic, thank you.}}$
 
 $\small\color{#6b73db}{\textsf{Thank you for taking your time, and spending some time learning about me, anymore general facts, or any interests are contained on my pronouns.cc and strawpage, have a wonderful day/night.}}$
