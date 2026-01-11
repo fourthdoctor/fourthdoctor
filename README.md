@@ -51,6 +51,8 @@ $\small\color{#6b73db}{\textsf{c+h is always welcome, specially when I am alone 
 
 $\small\color{#6b73db}{\textsf{I love listening, I'm not much of a talker when it comes down to not knowing people but I will gladly listen, but that doesn't mean I will ask questions.}}$
 
+
+
 $\small\color{#6b73db}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I start to distance myself off, but I also do have severe anger issues!}}$
 
 $\small\color{#6b73db}{\textsf{I also have slight adandonment issues, and I am absolutely petrified to scare people off, or have them leave me, so I tend to be very clingy, specially if I get close to someone.}}$
