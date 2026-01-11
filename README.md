@@ -52,6 +52,10 @@ $\small\color{#6b73db}{\textsf{c+h is always welcome, specially when I am alone 
 $\small\color{#6b73db}{\textsf{I love listening, I'm not much of a talker when it comes down to not knowing people but I will gladly listen, but that doesn't mean I will ask questions.}}$
 
 
+![11838477_490b1](https://github.com/user-attachments/assets/dc83c13c-a74d-4ecd-b0a2-1df1c95877a1)
+
+$\Large\color{#632230}{\textsf{"there's no point in being grown up if you can't act a little childish, sometimes...}}$
+
 
 $\small\color{#6b73db}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I start to distance myself off, but I also do have severe anger issues!}}$
 
