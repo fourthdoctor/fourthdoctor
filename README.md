@@ -1,4 +1,4 @@
-# about me
+# about me ((not recommened for mobile or smaller screens
 
 
 <p align="center">
@@ -43,9 +43,9 @@ $\small\color{#6b73db}{\textsf{If any friends of my own friends are doubles, the
 
 ![11679416_5c33b](https://github.com/user-attachments/assets/5381c208-29ff-49d0-8a49-b24dd14bb1e4)
 
-$\Large\color{#382275}{\textsf{"-Never be cowardly, never be cruel! -AND NEVER EVER EAT PEARS! Remember hate is always foolish,"}}$
+$\Large\color{#382275}{\textsf{"-Never be cowardly, never be cruel! -AND NEVER EVER EAT PEARS! Remember hate is-"}}$
 
-$\Large\color{#382275}{\textsf{"-love is always wise, always try to be nice, but never fail to be kind..."}}$
+$\Large\color{#382275}{\textsf{"-always foolish, love is always wise, always try to be nice, but never fail to be kind..."}}$
 
 $\small\color{#6b73db}{\textsf{c+h is always welcome, specially when I am alone unless stated otherwise.}}$
 
