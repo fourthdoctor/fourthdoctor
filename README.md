@@ -24,6 +24,8 @@ $\small\color{#6b73db}{\textsf{my name is will, or the doctor, mainly varying wi
 
 $\small\color{#6b73db}{\textsf{My pronouns consistantly stay masculine, any feminine terms will be called out, and I will state that I am uncomfortable.}}$
 
+$\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes are appreciated even if I dont celebrate it! :p}}$
+
 
 
 ![tumblr_27e27e9e3e9796acdad3ef0d6d2456e3_a0e31823_250](https://github.com/user-attachments/assets/e9797868-1915-4909-90d1-0959a61208eb)
