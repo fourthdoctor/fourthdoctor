@@ -41,7 +41,7 @@ $\small\color{#6b73db}{\textsf{due to that being the case, I encourage the lack 
 
 $\small\color{#6b73db}{\textsf{The only exception I have for that, is being friends.}}$
 
-$\small\color{#6b73db}{\textsf{I try not to be hostile, but at time I am with doubles. Mainly with my heavy kins, no offense I'm sorry!}}$
+$\small\color{#6b73db}{\textsf{I try not to be hostile, but at time I am with doubles. Mainly with my heavy kins, no offense I'm sorry in advance if it does happen!}}$
 
 ![11679416_5c33b](https://github.com/user-attachments/assets/5381c208-29ff-49d0-8a49-b24dd14bb1e4)
 
