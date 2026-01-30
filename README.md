@@ -1,5 +1,4 @@
-# about me ((not recommened for mobile or smaller screens
-
+# man of few words,, please respect that.
 
 <p align="center">
 
