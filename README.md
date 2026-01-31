@@ -74,3 +74,11 @@ $\small\color{#6b73db}{\textsf{pronouns.cc and strawpage, have a wonderful day/n
 ![tumblr_f7c0d0f8e5d392a6d3f352c4bd2769dd_677c95c8_500](https://github.com/user-attachments/assets/d79d9ce8-ce1b-42dd-81e3-c7b453adc7f6)
 
 [Guns.lol](https://guns.lol/w1lz0/)          ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ              [strawpage](https://mobiusmmobius.straw.page/) 
+
+
+
+
+
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3th3k6b5pygkyggj6fxrwo344&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
