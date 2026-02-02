@@ -34,6 +34,11 @@ $\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes 
 
 $\Large\color{#f7cd59}{\textsf{"I...- am the very model of a Gallifreyan buccaneer!-"}}$
 
+
+
+
+
+
 $\small\color{#6b73db}{\textsf{If you couldn't tell, I am a fictkin! I represent myself in the characters that I kin, and in some form or way believe I am some, or just heavily relate to others.}}$
 
 $\small\color{#6b73db}{\textsf{due to that being the case, I encourage the lack of doubles interacting with myself, unless stated wise.}}$
@@ -42,20 +47,53 @@ $\small\color{#6b73db}{\textsf{The only exception I have for that, is being frie
 
 $\small\color{#6b73db}{\textsf{I try not to be hostile, but at time I am with doubles. Mainly with my heavy kins, no offense I'm sorry in advance if it does happen!}}$
 
+
+
+
+
 ![11679416_5c33b](https://github.com/user-attachments/assets/5381c208-29ff-49d0-8a49-b24dd14bb1e4)
+
+
+
+
 
 $\Large\color{#382275}{\textsf{"-Never be cowardly, never be cruel! -AND NEVER EVER EAT PEARS! Remember hate is-"}}$
 
+
 $\Large\color{#382275}{\textsf{"-always foolish, love is always wise, always try to be nice, but never fail to be kind..."}}$
 
+
+
+
+
+
 $\small\color{#6b73db}{\textsf{c+h is always welcome, specially when I am alone unless stated otherwise.}}$
+
 
 $\small\color{#6b73db}{\textsf{I love listening, I'm not much of a talker when it comes down to not knowing people but I will gladly listen, but that doesn't mean I will ask questions.}}$
 
 
+$\small\color{#6b73db}{\textsf{I dont associate with most people I know on ponytown, I mind my own business and don't like drama.}}$
+
+
+
+
+
+
+
+
+
 ![11838477_490b1](https://github.com/user-attachments/assets/dc83c13c-a74d-4ecd-b0a2-1df1c95877a1)
 
+
+
+
+
+
 $\Large\color{#632230}{\textsf{"there's no point in being grown up if you can't act a little childish, sometimes..."}}$
+
+
+
 
 
 $\small\color{#6b73db}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I start to distance myself off, but I also do have severe anger issues!}}$
