@@ -26,9 +26,6 @@ $\small\color{#6b73db}{\textsf{My pronouns consistantly stay masculine, any femi
 $\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes are appreciated even if I dont celebrate it! :p}}$
 
 
-$\small\color{#6b73db}{\textsf{If you can't tell from my ponies, I quite enjoy britcoms, and sci-fi, and represent myself with some of the characters.}}$
-
-
 
 ![tumblr_27e27e9e3e9796acdad3ef0d6d2456e3_a0e31823_250](https://github.com/user-attachments/assets/e9797868-1915-4909-90d1-0959a61208eb)
 
@@ -45,6 +42,8 @@ $\Large\color{#f7cd59}{\textsf{"I...- am the very model of a Gallifreyan buccane
 $\small\color{#6b73db}{\textsf{If you couldn't tell, I am a fictkin! I represent myself in the characters that I kin, and in some form or way believe I am some, or just heavily relate to others.}}$
 
 $\small\color{#6b73db}{\textsf{due to that being the case, I encourage the lack of doubles interacting with myself, unless stated wise.}}$
+
+$\small\color{#6b73db}{\textsf{If you can't tell from my ponies, I quite enjoy britcoms, and sci-fi, and represent myself with some of the characters.}}$
 
 $\small\color{#6b73db}{\textsf{The only exception I have for that, is being friends.}}$
 
