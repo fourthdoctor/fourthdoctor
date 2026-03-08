@@ -105,7 +105,7 @@ $\small\color{#6b73db}{\textsf{I also have slight adandonment issues, and I am a
 
 $\small\color{#6b73db}{\textsf{specially if I get close to someone.}}$
 
-$\small\color{#6b73db}{\textsf{I AM undiagnosed, I do NOT care if you believe if I have autism, or adhd, I will find out on my own and do not wish for your input on that topic, thank you.}}$
+$\small\color{#6b73db}{\textsf{I am NOT diagnosed, I do NOT care if you believe if I have autism, or adhd, I will find out on my own and do not wish for your input on that topic, thank you.}}$
 
 $\small\color{#6b73db}{\textsf{Thank you for taking your time, and spending some time learning about me, boundries, dni, iwc, and byi are linked within my-}}$
 
