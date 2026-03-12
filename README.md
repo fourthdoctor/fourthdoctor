@@ -81,7 +81,7 @@ $\small\color{#6b73db}{\textsf{I dont associate with most people I know on ponyt
 $\small\color{#6b73db}{\textsf{If you see me sitting or hiding behind anyone associated with drama, PLEASE let me know (specifically in dms or strwpg)!}}$
 
 
-$\small\color{#6b73db}{\textsf{I do not wish to be hated for the people I am around unless they are very close, I get really anxious about being hated oh here.}}$
+$\small\color{#6b73db}{\textsf{I do not wish to be hated for the people I am around unless they are very close, I get really anxious about being hated on here.}}$
 
 
 
