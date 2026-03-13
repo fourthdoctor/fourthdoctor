@@ -49,6 +49,8 @@ $\small\color{#6b73db}{\textsf{The only exception I have for that, is being frie
 
 $\small\color{#6b73db}{\textsf{I try not to be hostile, but at time I am with doubles. Mainly with my heavy kins, no offense I'm sorry in advance if it does happen!}}$
 
+$\small\color{#6b73db}{\textsf{Master kinnies are welcome to interact, i don't truly mind anyone interacting with me!}}$
+
 
 
 
