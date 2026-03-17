@@ -41,7 +41,7 @@ $\Large\color{#f7cd59}{\textsf{"I...- am the very model of a Gallifreyan buccane
 
 $\small\color{#6b73db}{\textsf{If you couldn't tell, I am a fictkin! I represent myself in the characters that I kin, and in some form or way believe I am some, or just heavily relate to others.}}$
 
-$\small\color{#6b73db}{\textsf{If you can't tell from my ponies, I quite enjoy britcoms, and sci-fi, & once again represent myself with some characters from the shows.}}$
+$\small\color{#6b73db}{\textsf{If you can't tell from my ponies, I quite enjoy britcoms, and sci-fi, and once again represent myself with some characters from the shows!}}$
 
 $\small\color{#6b73db}{\textsf{due to that being the case, I encourage the lack of doubles interacting with myself, unless stated wise.}}$
 
