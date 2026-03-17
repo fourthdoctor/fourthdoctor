@@ -39,7 +39,7 @@ $\Large\color{#f7cd59}{\textsf{"I...- am the very model of a Gallifreyan buccane
 
 
 
-$\small\color{#6b73db}{\textsf{If you couldn't tell, I am a fictkin & c'link! I represent myself in the characters that I kin, and in some form or way believe I am some, or just heavily relate to others. My kins are not some I chose, but my c'links are.}}$
+$\small\color{#6b73db}{\textsf{If you couldn't tell, I am a fictkin and c'link! I represent myself in the characters that I kin, and in some form or way believe I am some, or just heavily relate to others. My kins are not some I chose, but my c'links are.}}$
 
 $\small\color{#6b73db}{\textsf{If you can't tell from my ponies, I quite enjoy britcoms, and sci-fi, and once again represent myself with some characters from the shows!}}$
 
