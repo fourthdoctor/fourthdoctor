@@ -15,7 +15,7 @@
 ![tumblr_9544b65b6ba74d9a7f236f2632cf1da3_098c7f78_400](https://github.com/user-attachments/assets/eb0a89c2-7c0e-4a04-a252-e9b540612955)
 
 
-$\Large\color{#632230}{\textsf{"-𝚢𝚘𝚞 𝚖𝚊𝚢 𝚋𝚎 𝚊 𝚍𝚘𝚌𝚝𝚘𝚛, 𝚋𝚞𝚝 I 𝚊𝚖 𝚝𝚑𝚎 𝚍𝚘𝚌𝚝𝚘𝚛 𝚝𝚑𝚎 𝚍𝚎𝚏𝚒𝚗𝚒𝚝𝚎 𝚊𝚛𝚝𝚒𝚌𝚕𝚎 𝚢𝚘𝚞 𝚖𝚒𝚐𝚑𝚝 𝚜𝚊𝚢!"}}$
+$\Large\color{#632230}{\textsf{"-You may be a doctor, But I am THE Doctor! The definite artical, you might say!"}}$
 
 $\small\color{#6b73db}{\textsf{HELLOOO!!!}}$
 
