@@ -1,4 +1,4 @@
-# -coolest or nerdiest man you'll ever meet-!,,,
+# -coolest or nerdiest man you'll ever meet-!,,, || best seen on pc 90% zoom
 
 <p align="center">
 
@@ -46,6 +46,8 @@ $\small\color{#6b73db}{\textsf{If you can't tell from my ponies, I quite enjoy b
 $\small\color{#6b73db}{\textsf{due to that being the case, I encourage the lack of doubles interacting with myself, unless stated wise.}}$
 
 $\small\color{#6b73db}{\textsf{The only exception I have for that, is being friends.}}$
+
+$\small\color{#6b73db}{\textsf{But, even with that exception, If were friends but i don't know u will I will be uncomfortable with you.}}$
 
 $\small\color{#6b73db}{\textsf{I try not to be hostile, but at time I am with doubles or completely ignore them.}}$
 
