@@ -53,23 +53,28 @@ $\small\color{#6b73db}{\textsf{I try not to be hostile, but at time I am with do
 
 $\small\color{#6b73db}{\textsf{Mainly with my heavy kins, no offense I'm sorry in advance if it does happen!}}$
 
-
 $\small\color{#6b73db}{\textsf{Master kinnies are welcome to interact, i don't truly mind anyone interacting with me unless told so!}}$
 
 
 
 
 
-![11679416_5c33b](https://github.com/user-attachments/assets/5381c208-29ff-49d0-8a49-b24dd14bb1e4)
+
+
+
+
+<img width="380" height="380" alt="tumblr_78410d5a7fe2ae9794cb63d8069b9fb5_ceb8403b_400" src="https://github.com/user-attachments/assets/c2ddb0d6-4189-4458-a4e7-ef9e94ff712e" />
 
 
 
 
 
-$\Large\color{#382275}{\textsf{"-Never be cowardly, never be cruel! -AND NEVER EVER EAT PEARS! Remember hate is-"}}$
 
 
-$\Large\color{#382275}{\textsf{"-always foolish, love is always wise, always try to be nice, but never fail to be kind..."}}$
+
+
+$\Large\color{#382275}{\textsf{"what's davros doing here in the than city-?"}}$
+
 
 
 
@@ -99,7 +104,12 @@ $\small\color{#6b73db}{\textsf{I do not wish to be hated for the people I am aro
 
 
 
-![11838477_490b1](https://github.com/user-attachments/assets/dc83c13c-a74d-4ecd-b0a2-1df1c95877a1)
+
+<img width="245" height="183" alt="tumblr_myjukrSidu1ssuoa0o5_250" src="https://github.com/user-attachments/assets/81cc019c-f4b7-4bb6-ba2d-8d3b465b32cf" />
+
+
+
+
 
 
 
@@ -125,7 +135,18 @@ $\small\color{#6b73db}{\textsf{Thank you for taking your time, and spending some
 $\small\color{#6b73db}{\textsf{-pronouns.cc and strawpage, have a wonderful day/night.}}$
 
 
-![tumblr_f7c0d0f8e5d392a6d3f352c4bd2769dd_677c95c8_500](https://github.com/user-attachments/assets/d79d9ce8-ce1b-42dd-81e3-c7b453adc7f6)
+
+
+
+
+
+<img width="400" height="224" alt="tumblr_1ead4b869c6601f93adc7629781299eb_9f7f89e0_400" src="https://github.com/user-attachments/assets/442caa03-ccaf-4009-aa1d-530c39f04d38" />
+
+
+
+
+
+
 
 [Guns.lol](https://guns.lol/w1lz0/)          ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ              [strawpage](https://mobiusmmobius.straw.page/) 
 
