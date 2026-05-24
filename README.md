@@ -29,10 +29,17 @@
 
 
 
+<img width="250" height="167" alt="tumblr_bc8c78238c790e475f6b57828829a002_231eb7f6_250" src="https://github.com/user-attachments/assets/4db715f7-1239-40b6-ad63-c2a75f5ecc51" />
+
+
+
+
+
 $\Large\color{#632230}{\textsf{"-You may be a doctor, But I am THE Doctor! The definite artical, you might say!"}}$
 
 
-<img width="250" height="167" alt="tumblr_bc8c78238c790e475f6b57828829a002_231eb7f6_250" src="https://github.com/user-attachments/assets/4db715f7-1239-40b6-ad63-c2a75f5ecc51" />
+
+
 
 $\small\color{#6b73db}{\textsf{HELLOOO!!!}}$
 
