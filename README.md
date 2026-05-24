@@ -73,7 +73,7 @@ $\small\color{#6b73db}{\textsf{Master kinnies are welcome to interact, i don't t
 
 
 
-$\Large\color{#382275}{\textsf{"what's davros doing here in the than city-?"}}$
+$\Large\color{#382275}{\textsf{"what's davros doing here in the thal city-?"}}$
 
 
 
