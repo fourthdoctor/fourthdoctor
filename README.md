@@ -12,7 +12,25 @@
 
 
 
-![tumblr_9544b65b6ba74d9a7f236f2632cf1da3_098c7f78_400](https://github.com/user-attachments/assets/eb0a89c2-7c0e-4a04-a252-e9b540612955)
+
+
+
+
+
+
+
+
+
+<img width="250" height="167" alt="tumblr_bc8c78238c790e475f6b57828829a002_231eb7f6_250" src="https://github.com/user-attachments/assets/f7d80806-d617-435b-96b3-6c800b8c0cbf" />
+
+
+
+
+
+
+
+
+
 
 
 $\Large\color{#632230}{\textsf{"-You may be a doctor, But I am THE Doctor! The definite artical, you might say!"}}$
