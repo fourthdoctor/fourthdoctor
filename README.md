@@ -47,12 +47,22 @@ $\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes 
 
 
 
-![tumblr_27e27e9e3e9796acdad3ef0d6d2456e3_a0e31823_250](https://github.com/user-attachments/assets/e9797868-1915-4909-90d1-0959a61208eb)
 
 
 
 
-$\Large\color{#f7cd59}{\textsf{"I...- am the very model of a Gallifreyan buccaneer!-"}}$
+
+<img width="400" height="296" alt="tumblr_31e28628e8dcc1b963af6909dc4c927c_17d8efb4_400" src="https://github.com/user-attachments/assets/c2ebc259-692d-48d7-9786-815d68aebf47" />
+
+
+
+
+
+
+
+
+
+$\Large\color{#632230}{\textsf{"-One last hope..."}}$
 
 
 
