@@ -170,7 +170,10 @@ $\small\color{#6b73db}{\textsf{-pronouns.cc and strawpage, have a wonderful day/
 
 
 
-<img width="400" height="224" alt="tumblr_1ead4b869c6601f93adc7629781299eb_9f7f89e0_400" src="https://github.com/user-attachments/assets/442caa03-ccaf-4009-aa1d-530c39f04d38" />
+
+<img width="600" height="399" alt="tumblr_4ef97a463867f69526f791c316a83850_bea83b66_400" src="https://github.com/user-attachments/assets/67d8fff4-5f26-40ea-aef9-c9f9e155ad50" />
+
+
 
 
 
