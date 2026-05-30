@@ -86,6 +86,9 @@ $\small\color{#6b73db}{\textsf{Mainly with my heavy kins, no offense I'm sorry i
 $\small\color{#6b73db}{\textsf{Master kinnies are welcome to interact, i don't truly mind anyone interacting with me unless told so!}}$
 
 
+$\small\color{#6b73db}{\textsf{I also do not ship, besides mainly canon 'ships' (thoschei, lokius, ect.. + foursarah because i love her.}}$
+
+
 
 
 
