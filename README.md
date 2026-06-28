@@ -83,13 +83,11 @@ $\small\color{#6b73db}{\textsf{due to that being the case, I encourage the lack 
 
 $\small\color{#6b73db}{\textsf{The only exception I have for that, is being friends.}}$
 
-$\small\color{#6b73db}{\textsf{But, even with that exception, If were friends but i don't know u will I will be uncomfortable with you.}}$
+$\small\color{#6b73db}{\textsf{But, even with that exception, If were friends but i don't know u well I will be uncomfortable with you.}}$
 
-$\small\color{#6b73db}{\textsf{I try not to be hostile, but at time I am with doubles or completely ignore them.}}$
+$\small\color{#6b73db}{\textsf{I try not to be hostile, but at time I am with doubles but i try to completely ignore them.}}$
 
 $\small\color{#6b73db}{\textsf{Mainly with my heavy kins, no offense I'm sorry in advance if it does happen!}}$
-
-$\small\color{#6b73db}{\textsf{Master kinnies are welcome to interact, i don't truly mind anyone interacting with me unless told so!}}$
 
 
 $\small\color{#6b73db}{\textsf{I also do not ship, besides mainly canon 'ships' (thoschei, lokius, ect..) + foursarah because i love her.}}$
@@ -123,13 +121,13 @@ $\Large\color{#382275}{\textsf{"what's davros doing here in the thal city-?"}}$
 $\small\color{#6b73db}{\textsf{c+h is always welcome, specially when I am alone unless stated otherwise.}}$
 
 
-$\small\color{#6b73db}{\textsf{I love listening, I'm not much of a talker when it comes down to not knowing people but I will gladly listen, but that doesn't mean I will ask questions.}}$
+$\small\color{#6b73db}{\textsf{I love listening, I'm not much of a talker when it comes down to not knowing people but I will gladly listen.}}$
 
 
 $\small\color{#6b73db}{\textsf{I dont associate with most people I know on ponytown, I mind my own business and don't like drama.}}$
 
 
-$\small\color{#6b73db}{\textsf{If you see me sitting or hiding behind anyone associated with drama, PLEASE let me know (specifically in dms or strwpg)!}}$
+$\small\color{#6b73db}{\textsf{If you see me sitting or hiding behind anyone associated with drama, PLEASE let me know (wether dms or strwpg)!}}$
 
 
 $\small\color{#6b73db}{\textsf{I do not wish to be hated for the people I am around unless they are very close, I get really anxious about being hated on here.}}$
@@ -161,7 +159,7 @@ $\Large\color{#632230}{\textsf{"there's no point in being grown up if you can't 
 
 
 
-$\small\color{#6b73db}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I start to distance myself off, but I also do have severe anger issues!}}$
+$\small\color{#6b73db}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I distance myself off, I also do have severe anger issues at times but i can manage them at times.}}$
 
 $\small\color{#6b73db}{\textsf{I also have slight adandonment issues, and I am absolutely petrified to scare people off, or have them leave me, so I tend to be very clingy,}}$
 
@@ -169,7 +167,7 @@ $\small\color{#6b73db}{\textsf{specially if I get close to someone.}}$
 
 $\small\color{#6b73db}{\textsf{I am NOT diagnosed, I do NOT care if you believe if I have autism, or adhd, I will find out on my own and do not wish for your input on that topic, thank you.}}$
 
-$\small\color{#6b73db}{\textsf{Thank you for taking your time, and spending some time learning about me, boundries, dni, iwc, and byi are linked within my-}}$
+$\small\color{#6b73db}{\textsf{Thank you for taking your time, and spending some time learning about me, boundries, dni, and byi, interests and kins are linked within my-}}$
 
 $\small\color{#6b73db}{\textsf{-pronouns.cc and strawpage, have a wonderful day/night.}}$
 
