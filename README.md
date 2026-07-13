@@ -188,7 +188,7 @@ $\small\color{#6b73db}{\textsf{-pronouns.cc and strawpage, have a wonderful day/
 
 
 
-[Guns.lol](https://guns.lol/w1lz0/)          ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ              [strawpage](https://mobiusmmobius.straw.page/) 
+[Guns.lol](https://guns.lol/fourthdoctor/)          ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ              [strawpage](https://fourthdoctor.straw.page/) 
 
 
 
