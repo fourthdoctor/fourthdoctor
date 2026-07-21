@@ -43,6 +43,8 @@ $\small\color{#6b73db}{\textsf{my name is will, or the doctor, mainly varying wi
 
 $\small\color{#6b73db}{\textsf{will is preferred at all times when talking to me.}}$
 
+$\small\color{#6b73db}{\textsf{refrain from calling me wil, i dislike it a lot.}}$
+
 $\small\color{#6b73db}{\textsf{I still respond to kin names even when not presenting as them at the time,}}$
 
 $\small\color{#6b73db}{\textsf{but I do NOT preferred being called them when not presenting as that kin.}}$
